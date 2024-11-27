@@ -1,16 +1,13 @@
-## Hi there 👋
+[![image-2024-11-26-164725387.png](https://i.postimg.cc/MKYMPHL9/image-2024-11-26-164725387.png)](https://postimg.cc/6yypTWtZ)
 
-<!--
-**furtanyl/furtanyl** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+### ➽────────────────────────── WELCOME 2 MY PAGE ───────────────────────────⪩
 
-Here are some ideas to get you started:
+[![image-2024-11-26-164354764.png](https://i.postimg.cc/1Rws56Rz/image-2024-11-26-164354764.png)](https://postimg.cc/K4Gd01MX)[![image-2024-11-26-164201714.png](https://i.postimg.cc/cHTCDnKZ/image-2024-11-26-164201714.png)](https://postimg.cc/XGGnqXcD)[![image-2024-11-26-165047200.png](https://i.postimg.cc/dV12GG02/image-2024-11-26-165047200.png)](https://postimg.cc/ppw5Hhzr)[![image-2024-11-26-165103732.png](https://i.postimg.cc/g2QZR5Qp/image-2024-11-26-165103732.png)](https://postimg.cc/CRC5pvwr)[![image-2024-11-26-165143321.png](https://i.postimg.cc/CxT0qs7t/image-2024-11-26-165143321.png)](https://postimg.cc/gnD19Rfq)[![image-2024-11-26-165201722.png](https://i.postimg.cc/h4Nv2xM8/image-2024-11-26-165201722.png)](https://postimg.cc/c6MdHvp6)[![image-2024-11-26-165302772.png](https://i.postimg.cc/7PntVMqd/image-2024-11-26-165302772.png)](https://postimg.cc/nMM1VmjG)[![image-2024-11-26-165330864.png](https://i.postimg.cc/44Wby8ff/image-2024-11-26-165330864.png)](https://postimg.cc/Bt11wBPk)[![image-2024-11-26-165354482.png](https://i.postimg.cc/y84J89Z6/image-2024-11-26-165354482.png)](https://postimg.cc/9rbXxDbs)[![image-2024-11-26-165419670.png](https://i.postimg.cc/02gmbLgq/image-2024-11-26-165419670.png)](https://postimg.cc/fkKkPqTH)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒  my names dog <img src="https://64.media.tumblr.com/aa4536901aa184b39d53a42f10968cc7/756bfdb7bd81d3f0-9a/s75x75_c1/7aea6bcc4976d7e84364567a2cfa07cb5fae2750.gifv"/> domestic sleddog therian <img src="https://64.media.tumblr.com/67b6b257f5e336672176c7171fe4d1f3/756bfdb7bd81d3f0-f1/s75x75_c1/5bd723416e1509c284d2748965a3d7dabc4d8615.gifv"/> 7teen years <img src="https://64.media.tumblr.com/70d0d9bfb4de9c2fc989efd73015f2f3/756bfdb7bd81d3f0-25/s75x75_c1/3d6e13d32fe1b97e9d77b422d2d9bfedc050bc80.gifv"/> 𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒  
+𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒 profic / proship <img src="https://64.media.tumblr.com/8c11e4e8fe867008bd6fd017105595cc/756bfdb7bd81d3f0-84/s75x75_c1/93dea4583570dd2e7e6ba4898087f0c148521d37.gifv"/> ship & let be ship! <img src="https://64.media.tumblr.com/85840f26e96e3f99510e2be4776160f2/756bfdb7bd81d3f0-4c/s75x75_c1/a8df9f941066367178554f71c564119fd9786cbd.gifv"/> shamelessly cringe <img src="https://64.media.tumblr.com/9b65593a67da103e3a886906ebe5895f/756bfdb7bd81d3f0-cc/s75x75_c1/996fa8df8187c8d9227af1416880c85ab00d78a6.gifv"/> adhdtism + system <img src="https://64.media.tumblr.com/6f44fc366b56d14b0923c5cb70392532/756bfdb7bd81d3f0-7e/s75x75_c1/046f545fa0c581caedadc825132ad9599ba7a109.gifv"/> P.L.U.R. furry 𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒 
+𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒  they / he / its prns <img src="https://64.media.tumblr.com/dd1e58cb87747b40b13afd1550426584/e484a3e98a0b3285-fe/s75x75_c1/6df5787c8b23ca774c3a192b0dc2ee54c884da79.gifv"/> canine neopronouns <img src="https://64.media.tumblr.com/4d02bc75b0106848f7dd3af2cd8e21fb/f4b4e737ef52453e-e8/s75x75_c1/3ac700ca099e316a1f0a62bb0c681348c9c67923.gifv"/> lesboy thing <img src="https://64.media.tumblr.com/20825132b884dc36cbca76c52a4c81f7/e484a3e98a0b3285-40/s75x75_c1/75ac3c9665e7670a9ccb3261773b88e6e73eef43.gifv"/> 𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒 
+
+### ➽─────────────────────────── WHERE 2 FIND ME ────────────────────────────⪩
+𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒  ponytown ---- proship tree <img src="https://64.media.tumblr.com/afb5229bc156af6444a1bd0300ba4594/e484a3e98a0b3285-4c/s75x75_c1/6b44ef6a8694b608a15b5d0d4b9e442be4229139.gifv"/> my skins can be found [here](https://x.com/furtanyl/status/1861184750469120281) 𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒  
+𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒⠀  socials ---- i mostly rt profic stuff + talk ab being a dog <img src="https://64.media.tumblr.com/991a50c5518bb67261691afefcc5d91f/f4b4e737ef52453e-c1/s75x75_c1/400e5706042786bb6ee61050283107b99b6c6f7f.gifv"/> [twitter](https://x.com/furtanyl) / [bluesky](https://bsky.app/profile/furtanyl.bsky.social) / [strawpage](furtanyl.straw.page) / [rentry](https://rentry.co/ffurtanyl) 𓈒⠀𓂃⠀⠀˖⠀𓇬⠀˖⠀⠀𓂃⠀𓈒⠀  
